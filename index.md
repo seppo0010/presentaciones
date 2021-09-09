@@ -41,6 +41,6 @@ pedagógicas posible. Si te interesa alguna, podés escribirme a
 
 ### Miscelánaos
 
-* [¿Son los humanos más tontos que el moho](¿Son los humanos más tontos que el moho .pdf)
+* [¿Son los humanos más tontos que el moho?](¿Son los humanos más tontos que el moho .pdf)
   Existe un ser vivo similar al moho capaz de resolver problemas difíciles de
   forma asombrosa.
